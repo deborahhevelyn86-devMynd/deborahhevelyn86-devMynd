@@ -46,7 +46,7 @@ Sou uma desenvolvedora full stack em formação, apaixonada por tecnologia, auto
 ## 📫 Como Me Encontrar
 
 - **GitHub:** [deborahhevelyn86-devMynd](https://github.com/deborahhevelyn86-devMynd)  
-- **LinkedIn:** [Clique aqui](https://www.linkedin.com/) *(adicione o seu depois)*  
+- **LinkedIn:** [Clique aqui](https://www.linkedin.com/in/deborah-hevelyn-6ba016250/)  
 - **E-mail:** *db.empreendimentosptbr@gmail.com*  
 
 ---
